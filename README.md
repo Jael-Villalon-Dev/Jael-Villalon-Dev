@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on Valencia City LGU <br>👯 I’m looking to collaborate on IS OPEN <br>🤝 I’m looking for help with collaborators <br>🌱 I’m currently learning Machine Learning <br>💬 Ask me about<br>⚡ Fun fact: Love playing Badminton and playing games. 
 
 
 ## 🌐 Socials:
